@@ -1,2 +1,2 @@
 # 12-marong-AI
-jay
+ jay / joy / aiden
